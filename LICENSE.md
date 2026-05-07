@@ -1,4 +1,4 @@
-
+baddies Script advanced is the best baddies Script, featuring silent aim and no clip. Safe and powerful for all your needs.
 
 
 
